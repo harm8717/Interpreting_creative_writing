@@ -1,4 +1,4 @@
-## Intrepreting Creative Writing
+## Interpreting Creative Writing
 
 ### Project Fletcher MVP Summary
 
